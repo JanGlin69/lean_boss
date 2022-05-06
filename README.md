@@ -12,3 +12,6 @@ tam búri v morských výlevoch!
 
 ok
 
+
+
+retzp
