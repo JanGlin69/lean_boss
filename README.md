@@ -9,3 +9,6 @@ tam ti znie v Záboja spevoch,
 tam ti ju stvorí dlátko Canóvy,
 tam blýska z hrsti Paromovi,
 tam búri v morských výlevoch!
+
+ok
+
